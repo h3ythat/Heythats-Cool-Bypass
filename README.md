@@ -1,2 +1,2 @@
 # Heythats-Cool-Bypass
-[wow](https:\\www.google.com)
+[wow](https://www.google.com)
