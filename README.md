@@ -1,2 +1,2 @@
 # Heythats-Cool-Bypass
-hmm
+[wow](imcool.com)
